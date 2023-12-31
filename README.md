@@ -1,0 +1,2 @@
+# Tore
+Bu işi başaracağım
